@@ -1,2 +1,1 @@
-# CURRICULO CV
-Em andamento
+
